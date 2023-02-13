@@ -9,5 +9,7 @@
 
 ### ANDROID BASICS
 
-![dcr](https://imgur.com/a/qhTFgur.png)
+![vgt](https://i.imgur.com/zHG9Tje.png)
+
+
 
